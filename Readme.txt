@@ -1,4 +1,4 @@
-Achtar Mohamad 322CC
+Achtar Mohamad 
 
 
 Am facut mai mult fisiere cum este cerut in pdf ,
